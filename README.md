@@ -50,5 +50,5 @@ If you'd like me to help you, I'm available for hire. Contact me at ramanareddy0
 You can follow me on social media 🐙😇, at the following locations:
 
 - [GitHub](https://github.com/ramanareddyanamala)
-- [Instagram](https://www.instagram.com/itsmeramana/)
+- [Instagram](https://www.instagram.com/its_me_ramanareddyram/)
 
